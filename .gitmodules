@@ -1,7 +1,0 @@
-[submodule "#639"]
-	path = "#639"
-	url = https://github.com/Ailol/-639.git
-	branch = main
-[submodule "proto-light-link"]
-	path = proto'light
-	url = https://github.com/Ailol/proto.git
