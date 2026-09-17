@@ -8,7 +8,7 @@ Quanta'pfeno ' quantifiable truth (hunterzs and gatherezs)
 Quantumm ' searchers
 ```
 
-![1787496119875](image/readme/1787496119875.png)
+<img width="428" height="553" alt="image" src="https://github.com/user-attachments/assets/8582f94e-2138-4af5-bd73-993c1dfce8dd" />
 
 
 <img width="148" height="118" alt="image" src="https://github.com/user-attachments/assets/34fb5eb3-5cd2-44e8-ba85-04cfc1935503" />
