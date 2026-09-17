@@ -1,8 +1,14 @@
 # Ti'empo
 
-#### Div. spatial
-Example of tiempo is that mind breaks some "rules" where this picture is a nice way of seeing more advanced memes :)
+# life™ - that is it, theory name'
 
-> The lack of meaning is to understand that linear already sets the combinatorics for "evolution" :)
 
-<img width="2826" height="2092" alt="Untitled Diagram (8)" src="https://github.com/user-attachments/assets/2d055842-d39c-4708-90be-8cbe52f71938" />
+```
+Quanta'pfeno ' quantifiable truth (hunterzs and gatherezs)
+Quantumm ' searchers
+```
+
+![1787496119875](image/readme/1787496119875.png)
+
+
+<img width="148" height="118" alt="image" src="https://github.com/user-attachments/assets/34fb5eb3-5cd2-44e8-ba85-04cfc1935503" />
