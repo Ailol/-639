@@ -11,6 +11,10 @@ This is a navigation layer for the existing folder grammar. It groups source-bac
 | `ti'empo/.../spatial'kernel/bio'me'tic` | biological domain pack | [BioChain](ti'empo/pℏeno(projected%20set%20of%20looks%20and%20behaviour)/t'ai%20↔%20em(d3v)/spatial'kernel/bio'me'tic(bti³%20'%20mea%20culpa)/BIOCHAIN.md) |
 | `ti'empo/.../t'pheno/.../ap'article` | attention and symbolic inscription | [Atomic Inscribe](ti'empo/pℏeno(projected%20set%20of%20looks%20and%20behaviour)/t'pheno%20(.domain)(div)/ap'article(articulate%20or%20'perform%20at%20peak')/ATOMIC_INSCRIBE.md) |
 
+## The feno → pfeno → pheno transition
+
+[feno → pfeno → pheno](ti'empo/pℏeno(projected%20set%20of%20looks%20and%20behaviour)/FENO_PFENO_PHENO.md) is the organizing transition: inward hardware/data → pfazing between usable and understanding its use → presentable data shaped into a trait. The stage describes what the material is doing, not simply which directory contains it.
+
 ## Reading rule
 
 1. `q'discovery` keeps candidate vocabulary and open questions.
