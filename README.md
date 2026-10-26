@@ -23,3 +23,5 @@ What we put out gives contact a place to begin. The scale and people we meet may
 We put out, we take in, and affinity helps us catch the signals. 💛
 
 **bti³** begins with **living and producing life**. This initial state changes only when **²** is set: direction, teams and divisions. **Biochain** is one way of bti³.
+
+Mars · Moon · … `[l·l]` 😊
