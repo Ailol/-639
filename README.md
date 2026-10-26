@@ -2,8 +2,10 @@
 
 # life™ - that is it, theory name'
 
+#### the perfekt theory is what in koin it. 
 
-"live laws. don'ť «tell» them"
+
+¡"live laws. don'ť «tell» them"
 
 
 ```
