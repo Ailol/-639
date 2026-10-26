@@ -3,6 +3,9 @@
 # life™ - that is it, theory name'
 
 
+"live laws. don'ť «tell» them"
+
+
 ```
 Quanta'pfeno ' quantifiable truth (hunterzs and gatherezs)
 Quantumm ' searchers
