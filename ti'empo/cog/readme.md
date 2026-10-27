@@ -11,7 +11,7 @@ here is a example:
 Doesnt mean anything right? like the
 [[[[]]]]] is realy to just make it clear that its in you(it feels more compcated and set in place, #1 psych play tbh.)
 
-#### The direction (e'moji, 
+#### The direction (e'moji, [<img width="21" height="23" alt="image" src="https://github.com/user-attachments/assets/03d7d5e4-6290-406f-923c-c6f1e4b6629e" />]
 it just feels so personal to send f.eks with a red heart to someone you have spent time with.
 <img width="21" height="23" alt="image" src="https://github.com/user-attachments/assets/03d7d5e4-6290-406f-923c-c6f1e4b6629e" />
 
