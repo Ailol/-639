@@ -23,6 +23,8 @@ last weekend, here is what i feel after:
 
 #### how'ever cog cannot have a ending.
 
+
+```
 cog[2026]
 🧠[[[[[Зэl·]Ə<о'ьịт> л.001ъ ЭЗяE'Σ [≡] Δ]]]] % Δ; op(cog'field) ; observ(c=prepp); as this ending sets that you are also gathering data :) 
 💛[[[[[Зэl·]Ə<о'ьịт> л.001ъ ЭЗяE'Σ [≡] Δ]]]]% Δ; op(cog'field); 
@@ -30,3 +32,4 @@ cog[2026]
 🖤[🩷❤️‍🔥💖💓💘🧡[[[[[Зэl·]Ə<о'ьịт> л.001ъ ЭЗяE'Σ [≡] Δ]]]]]
 ♥️[🩷❤️‍🔥💖💓💘🧡[[[[[Зэl·]Ə<о'ьịт> л.001ъ ЭЗяE'Σ [≡] Δ]]]]]
 🤍[🩷❤️‍🔥💖💓💘🧡[[[[[Зэl·]Ə<о'ьịт> л.001ъ ЭЗяE'Σ [≡] Δ]]]]]
+```
