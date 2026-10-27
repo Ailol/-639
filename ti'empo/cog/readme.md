@@ -1,5 +1,19 @@
 # Directional data ' 
 
+💛 - Зэl·]Ə<о'ьịт> л.001ъ ЭЗяE'Σ [≡] Δ - feels non ending, almost like a opening of vulnerability.
+💟 - [Зэl·]Ə<о'ьịт> л.001ъ ЭЗяE'Σ [≡] Δ] - better, still, doesnt remind you to end the process.
+<img width="22" height="25" alt="image" src="https://github.com/user-attachments/assets/e58ec77a-77c2-41af-bbdc-74e49e279f46" /> - ahh. purr'fekt.
+
+
+mind % b'come(matrix); :)
+
+
+
+```
+[start'emoji / hope] [[[[[Зэl·]Ə<о'ьịт> л.001ъ ЭЗяE'Σ [≡] Δ]]]]] [end'result of[sum]' this line [zum]]
+```
+
+
 #### the q'language; 
 
 the basis is that the ' speech happens in you 🖤
