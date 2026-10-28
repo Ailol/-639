@@ -14,7 +14,7 @@ like [.] sets the context'
 and culture is %
 and then comes the dev
 
-earth'physicz{
+earth'pfysicz{
 [99.965 %]
 }into(t.d3v.pf'kernel);
 

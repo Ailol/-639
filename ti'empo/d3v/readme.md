@@ -6,7 +6,7 @@ psych[med, pharma, bio'eng, its physic(atm wiki has fermionz' with charm] its fy
 Then comes the socio psych below
 [money', availability, discovery or [discovered] understanding etc]
 
-physicz'teach
+pfysicz'teach
 partikle'teach
 etc :) 
 
