@@ -1,4 +1,6 @@
-# Ti'empo
+# Tɛk áge haz'set[⁰0] binaяi.
+ 
+ ' Ti'empo
 
 # life™ - that is it, theory name'
 
