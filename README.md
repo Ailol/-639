@@ -2,6 +2,8 @@
 
 #### 💓 a'яя[⁰·¹] to binaяi p'「 f[ᶠ'·°].」💟
 
+
+## kvante is the 'tegridy blend. 
 ### Grab the safety set for mind !
 
 ```
@@ -17,7 +19,7 @@
 <br/>
 <br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/>
 
-## kvante is the 'tegridy blend. 
+
 
 ```
 p'「 f[ᶠ'·°].」 
