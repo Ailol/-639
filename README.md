@@ -6,6 +6,7 @@
 #### ʞv'ante
 
 
+<img width="1296" height="1068" alt="<3 the sugababèz thei fun :) " src="https://github.com/user-attachments/assets/c67d5fb1-c8ac-4108-bac8-5779437c3d1b" />
 
 
 
