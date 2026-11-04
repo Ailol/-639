@@ -1,8 +1,8 @@
-# Tɛk 
+# Tɛk : Tɛʞ`
 
 #### 💓 a'яя[⁰·¹] to binaяi p'「 f[ᶠ'·°].」💟
 
-## 🫟 tea has been boilin'
+# 🫟 
 #### ʞv'ante
 
 
