@@ -1,6 +1,34 @@
-# Tɛk áge haz'set[⁰0] binaяi.
- 
- ' Ti'empo
+# Tɛk 
+
+#### 💓 a'яя[⁰·¹] to binaяi p'「 f[ᶠ'·°].」💟
+
+## 🫟 tea has been boilin'
+#### ʞv'ante
+
+
+
+
+
+<br/> 
+<br/>
+<br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/><br/>
+
+## kvante is the 'tegridy blend. 
+
+```
+p'「 f[ᶠ'·°].」 
+     %٪.ti'emps'[sets of realiti']
+```
+nextz is 
+
+ti'zeи'§ for thiz guy: but
+
+computational field is
+ʞvante[think 1.6 / ʞvantè as the "bop" in question to design for]
+🔅 setz'nukleuz.
+ℹ️.mil is the level for ʞomp field for · merchantil'z to cipher new stilez to style *яa kaet snap of fingerz.*
+
+[ ɓiaz moďe· on [cpu ` gpu] " gяяяReat plaze to stårt. 
 
 # life™ - that is it, theory name'
 
