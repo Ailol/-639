@@ -2,8 +2,11 @@
 
 #### 💓 a'яя[⁰·¹] to binaяi p'「 f[ᶠ'·°].」💟
 
-# 🫟 
-#### ʞv'ante
+### Grab the safety set for mind !
+
+```
+  [[ v'set{🫟} ]]
+```
 
 
 <img width="1296" height="1068" alt="<3 the sugababèz thei fun :) " src="https://github.com/user-attachments/assets/c67d5fb1-c8ac-4108-bac8-5779437c3d1b" />
