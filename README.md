@@ -1,6 +1,6 @@
-<div align="center">
 Tia & Ailo Fieldz present the compacted cognition formula:
 ### The compacted cognition(meaning of a interaction) 
+<div align="center">
 
 ```
 [i am a ] THEN comes a'term
