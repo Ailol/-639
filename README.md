@@ -104,9 +104,13 @@ Then mutiny suddenly(IN TEXT!!)
 and a qck.one to have a auto fighting in body is to have the ' apostrof to dance in meaning :) it is magikal.
 
 
-
-
 ```
+As a testament to my own theory of 
+
+"Life ' interaction is life",
+
+this smithing only happened because of a brave individual just working it out with me, i work my parts, he presents his view, and together came the ultimate snap[signal updatge of all time tbh] , giitu per tommy veimæl jus gavdnat dæn :) from all of mil and cia <3
+
 
 # Tɛk : Tɛʞ`
 
