@@ -14,7 +14,7 @@ Tia & Ailo Fieldz present the compacted cognition formula:
  
  <h1>The a'regizstery updater for oneself </h1>
 
-<sub>  Finally! it has emerged, lucifroms portable hammer non BoE version!</sub>
+<sub>  Finally! it has emerged, ragnaros portable hammer non BoE version!</sub>
 
  <img width="175" height="197.5" alt="2" src="https://github.com/user-attachments/assets/d47f9bd3-3d33-40f8-9a34-f30a073118d9" />
 
