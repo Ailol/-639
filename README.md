@@ -19,19 +19,30 @@ Tia & Ailo Fieldz present the compacted cognition formula:
  <img width="175" height="197.5" alt="2" src="https://github.com/user-attachments/assets/d47f9bd3-3d33-40f8-9a34-f30a073118d9" />
 
 <h5>The interakt</h5>
+
+```
 Emc' is a great nukleus starter on "i need to be intelligent for this to work" <- smithing gauge.
 
 E = ambition(stem cell is sticks & stones)
 m = materie(food, matter & time scheduling)
 c = prepp ( what you then can focus on to change fibres)
 ² to colo(u)r ' correktly. 
+```
 
-kvante is the adjustment to tek available( ² = ^ 2, d'terms the possibilities with a proper smithen :) sets ingrainment 0.1% start foundation )
+#### qck.kvante
+² = ^ 2
+data%tek; op(times & availability) ; obsrv(versioning | smithing);
 
+sets ingrainment 
+яequirement'z[silent bar(like lawyers bar)]
+яeq'0.1% improvement to all of you :) 
+requiremens is the presented one, always so 'curtious.
+яeq' is internal ambition[qt'b and qt'i is einstein]
 
+```
 here is a kvantikle, the lens of truth i call kvante :) 
 the kvantirk' [ the "for me?" as you literally make your own meaning in the moment if ingrainment is complex enough to respekt that :)]
-
+```
 
 i present the art of bafia:
 ## j'habite 'moi?
