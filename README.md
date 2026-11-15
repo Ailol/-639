@@ -1,4 +1,6 @@
-# Tɛk : Tɛʞ`
+# The evolv' 
+
+to be renovated. 
 
 then a great one from mr haaland himself on how he became so good is
  - " meditate"
