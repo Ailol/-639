@@ -12,6 +12,13 @@ c = prepp ( what you then can focus on to change fibres)
 
 kvante is the adjustment to tek available( ² = ^ 2, d'terms the possibilities with a proper smithen :) sets ingrainment 0.1% start foundation )
 
+
+here is a kvantikle, the lens of truth i call kvante :) 
+the kvantirk' [ the "for me?" as you literally make your own meaning in the moment if ingrainment is complex enough to respekt that :)]
+
+
+i present the art of bafia:
+## j'habite 'moi?
 <img width="175" height="125" src="https://github.com/user-attachments/assets/2b3fcc54-ba9f-4064-b107-ed53822cbb8c" />
 
 
