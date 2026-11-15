@@ -8,9 +8,7 @@ Tia & Ailo Fieldz present the compacted cognition formula:
 
  b ' the skips and beats forward 💓 setz the bio'[ck]ain.
  c'prepped for that interaciton, if NOT
- def(changes)
-
-
+ def(changes 'phibresz over [ket'cet] apostrof is always for you self to understand :) )
 ```
 
  
