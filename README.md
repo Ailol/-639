@@ -43,34 +43,72 @@ memorable.moment % @ll.life.in.uni;
 the view of others is the opposite of you during teaching and instruktion.
 
 ```
---- memorable.moment % @ll.life.in.uni;
+--- The c=prepp version of EMC[the ambit' adjuster for locality and proximity]
 
-qt'bee 
-≈
-a' moment
-b'ee
-c' prepp(f.eks soss vs normal er prepped to the room)
+qt'🐝
+=
+a' moment in the group or work etc
+b'iochain to interact with
+c' prepp(f.eks )
+
+def(qt'i) - sets the phibres(the running muscle fibres, as they do vibrate on ressonance in the room, fear is sensed in many ways)
+
+
+then a qck.smith is to
+qt'bee % qt'i; op(today) ; obsrv(the week)
+
+qt'🐝 % qt'👁️‍🗨️; operator(agency) ; observer(your hope ' godz, agencies, doctors, friends etc) <- usually a quartil(the undefined quarter)
+
+
+and then a qck smithen to have a easy way of 
+semantikal:
+= smithing forever ( 65 ' is when yep)
+≈ working on it (56 ' still workin on it)
+
+non'semantikal:
+≡ the inferred[non'semantikal] sense of the moment. 
+
+when you have a forever 1.0.0 version,
+≡ is interesting, its the "partikels" sense, that "hmm it might not be right for the moment, but heck imma throw it out."
 
 qt'i ≡ def(intelligence ' to craft ambition)
 
 qt'i ≡ qt'be
 
----
-normy version
-qt'bee 
-=
-a' moment
-b'ee
-c' prepp(f.eks soss vs normal er prepped to the room)
+---  1.0.1 version ' mil orientation style
 
-qt'i ≈ def(intelligence ' to craft ambition)
+' to break systematic brainwashing [1 black chain you get]
+[ = ] - of the room is to "brainwash the room"
 
-qt'i ≈ qt'be
+qt'🐝
+def(black qti '≡ iq(of the squad[like a ensemblè])
 
-qt'i ≈ qt'be = i'tq[ket / cet] < do i react?.
+```
+then you have a complexity to understand others beyond your own, in a single line
+```
+this one has MANY uses cases, infinite even:
+
+this example is to set the common room, however it can be smithen to mil ops levels and black ops and cia with changing like below it.
+           own intelligence      inferred i   internal iq of the other individual
+ YOU [  qt'i ≈ qt'be] E [ b'emits ≈ i't(i)q[ket / cet] <  their own EMC^2, and we will never know everrrr.
+
+here is a example cross lines of map to smithen it AFTER you have understood its value:
+я ' л ' .residualz
+   [R]
+Я ' л[r] ' r.esidualz(different level)
+
+Then mutiny suddenly(IN TEXT!!)
+[л]я ' яя dualz.cs'1.6
+-----
+
+and a qck.one to have a auto fighting in body is to have the ' apostrof to dance in meaning :) it is magikal.
+
+
 
 
 ```
+
+# Tɛk : Tɛʞ`
 
 then a great one from mr haaland himself on how he became so good is
  - " meditate"
@@ -80,16 +118,6 @@ me the 639 the nerd who is building the g'rep for haaland (9'36) calls it
 
 as e'term is almost equal to meditating through memories. 
 
-
-
-
-
-
-
-
-
-
-# Tɛk : Tɛʞ`
 
 #### 💓 a'яя[⁰·¹] to binaяi p'「 f[ᶠ'·°].」💟
 
