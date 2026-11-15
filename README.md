@@ -26,7 +26,8 @@ Emc' is a great nukleus starter on "i need to be intelligent for this to work" <
 E = ambition(stem cell is sticks & stones)
 m = materie(food, matter & time scheduling)
 c = prepp ( what you then can focus on to change fibres)
-² to colo(u)r ' correktly. 
+² to colo(u)r ' phibresz(quantum you, black is always you) ' color is fibre(the atomized you(surgery etc)).
+
 ```
 
 #### qck.kvante
