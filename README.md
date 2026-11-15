@@ -1,5 +1,5 @@
 <div align="center">
-<img width="175" height="125" alt="2" src="https://github.com/user-attachments/assets/d47f9bd3-3d33-40f8-9a34-f30a073118d9" />
+<img width="235" height="125" alt="2" src="https://github.com/user-attachments/assets/d47f9bd3-3d33-40f8-9a34-f30a073118d9" />
 
 
 <h3>I present the forever security formulas for genetiks and genetics in a textual format! </h3>
