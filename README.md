@@ -1,3 +1,67 @@
+<div align="center">
+<h3>I present the forever security formulas for genetiks and genetics in a textual format! </h3>
+^^
+
+<h5>The interakt</h5>
+Emc' is a great nukleus starter on "i need to be intelligent for this to work" <- smithing gauge.
+
+E = ambition(stem cell is sticks & stones)
+m = materie(material to use in processes)
+c = the choice that matters for
+^ 2 to color ' correktly. 
+
+<img width="175" height="125" alt="image-removebg-preview - 2026-11-15T160049 813" src="https://github.com/user-attachments/assets/2b3fcc54-ba9f-4064-b107-ed53822cbb8c" />
+
+
+```
+normy version
+qt'bee 
+=
+a' moment
+b'ee
+c' prepp(f.eks soss vs normal er prepped to the room)
+
+qt'i ≈ def(intelligence ' to craft ambition)
+
+qt'i ≈ qt'be
+
+qt'i ≈ qt'be = i'tq[ket / cet] < do i react?.
+
+
+---
+
+qck.note is the definer, as .mil requires you to actgually report it in. and i do agree that is the difference to have
+"super fucking preciz style". and jens stoltenbergs words do ring true to "report to local aswell", as context and culture does smithen.
+
+qt'bee 
+≈
+a' moment
+b'ee
+c' prepp(f.eks soss vs normal er prepped to the room)
+
+qt'i ≡ def(intelligence ' to craft ambition)
+
+qt'i ≡ qt'be
+
+ 
+```
+
+
+
+
+
+
+<sub>  Finally! it has emerged, lucifroms portable hammer non BoE version!</sub>
+
+
+
+
+
+
+
+
+
+
 # Tɛk : Tɛʞ`
 
 #### 💓 a'яя[⁰·¹] to binaяi p'「 f[ᶠ'·°].」💟
