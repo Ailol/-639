@@ -4,7 +4,7 @@ Tia & Ailo Fieldz present the compacted cognition formula:
 
 ```
 [i am a ] THEN comes a'term
- a' [[[[a'bit[⁰·¹].cetz(kv) to d.term(b'naя '「 fibrez[ᶠ'·°]'」]]]]]💟 
+ a' [[[[a'bit[⁰·¹].cetz(kv) to d.term(b'i'naя '「 fibrez[ᶠ'·°]'」]]]]]💟 
 
  b ' the skips and beats forward 💓 setz the bio'[ck]ain.
  c'prepped for that interaciton, if NOT
