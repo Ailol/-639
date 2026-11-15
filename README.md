@@ -30,9 +30,10 @@ c = prepp ( what you then can focus on to change fibres)
 ```
 
 #### qck.kvante
-² = ^ 2
+ [[[ context ² = ^ 2 context, culture % tek; op(tech) ; obsrv(t') ]]]
+```
 data%tek; op(times & availability) ; obsrv(versioning | smithing);
-
+```
 sets ingrainment 
 яequirement'z[silent bar(like lawyers bar)]
 яeq'0.1% improvement to all of you :) 
