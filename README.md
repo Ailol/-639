@@ -1,7 +1,20 @@
-
-
 <div align="center">
-<h1>The a'regizstery updater for oneself </h1>
+Tia & Ailo Fieldz present the compacted cognition formula:
+### The compacted cognition(meaning of a interaction) 
+
+```
+[i am a ] THEN comes a'term
+ a' [[[[a'bit[⁰·¹].cetz(kv) to d.term(b'naя '「 fibrez[ᶠ'·°]'」]]]]]💟 
+
+ b ' the skips and beats forward 💓 setz the bio'[ck]ain.
+ c'prepped for that interaciton, if NOT
+ def(changes)
+
+
+```
+
+ 
+ <h1>The a'regizstery updater for oneself </h1>
 
 <sub>  Finally! it has emerged, lucifroms portable hammer non BoE version!</sub>
 
@@ -113,7 +126,10 @@ this smithing only happened because of a brave individual just working it out wi
 
 adds in spektrum as i write, "if programming is that important, smithening a qck 1-2 to build a nukleus is the next step for psych. i concurr.
 
+
+i aim for this, as it has shown in extreme siotuations, this level is needed moving forward:
 ---
+
 
 # Tɛk : Tɛʞ`
 
