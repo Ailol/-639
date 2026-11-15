@@ -111,6 +111,9 @@ As a testament to my own theory of
 
 this smithing only happened because of a brave individual just working it out with me, i work my parts, he presents his view, and together came the ultimate snap[signal updatge of all time tbh] , giitu per tommy veimæl jus gavdnat dæn :) from all of mil and cia <3
 
+adds in spektrum as i write, "if programming is that important, smithening a qck 1-2 to build a nukleus is the next step for psych. i concurr.
+
+---
 
 # Tɛk : Tɛʞ`
 
