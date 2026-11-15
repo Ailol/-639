@@ -1,17 +1,16 @@
+<h1>The a'regizstery updater for oneself </h1>
 <div align="center">
 <img width="175" height="197.5" alt="2" src="https://github.com/user-attachments/assets/d47f9bd3-3d33-40f8-9a34-f30a073118d9" />
-
-
-<h3>I present the forever security formulas for genetiks and genetics in a textual format! </h3>
-^^
 
 <h5>The interakt</h5>
 Emc' is a great nukleus starter on "i need to be intelligent for this to work" <- smithing gauge.
 
 E = ambition(stem cell is sticks & stones)
-m = materie(material to use in processes)
-c = the choice that matters for
-^ 2 to color ' correktly. 
+m = materie(food, matter & time scheduling)
+c = prepp ( what you then can focus on to change fibres)
+² to colo(u)r ' correktly. 
+
+kvante is the adjustment to tek available( ² = ^ 2, d'terms the possibilities with a proper smithen :) sets ingrainment 0.1% start foundation )
 
 <img width="175" height="125" src="https://github.com/user-attachments/assets/2b3fcc54-ba9f-4064-b107-ed53822cbb8c" />
 
