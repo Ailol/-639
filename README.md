@@ -1,4 +1,19 @@
-# The evolv' 
+# The evolv's'zet 
+
+### the medicinal and psych abc'zs.
+a'rtificial (is always to evolv the a'space)
+b'finity <biochain> as finite srt of bio is set to proximity.
+c=prep [ affinity & me] where affinity is a'f & is ingrainment
+d'term knowledge transfer as trafficking of data happens in you 💟 e=mz (🐝 is one 'partikle' ty twitch kidz! you awesome) 💟
+
+e <emotion; e'tenzor' emitting' emtiion( tha quantikle) irs near finite of infinite[age is set as finite atm]
+f ' finit of usable fibre and phibee setz within a bioquant[fotballer f.eks is 16 21] 
+
+### then a quick one is
+```
+abc'def(i'kill for that <feeling>[honor; credz etc] 
+abc is the stage; d'e'f is the internal stage to set 😊🐝🔆
+```
 
 to be renovated. 
 
